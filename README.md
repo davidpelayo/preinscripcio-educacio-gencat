@@ -1,0 +1,1 @@
+Source: https://educacio.gencat.cat/ca/departament/transparencia/gestio-serveis-publics/algoritme-preinscripcio/
